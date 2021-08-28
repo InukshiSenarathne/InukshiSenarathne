@@ -1,7 +1,7 @@
 ### Hi there 👋
-~I am Inukshi Senarathne ^_^  
+~I am Inukshi Senarathne ^_^ 
 
-~My IT number- "IT20215460"
+~My IT number- "IT20215460" 
 
 ~GitHub username- "InukshiSenarathne"
 
