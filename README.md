@@ -1,5 +1,5 @@
 ### Hi there 👋
-~I am Inukshi Senarathne ^_^ 
+~I am Inukshi Senarathne :)
 
 ~My IT number- "IT20215460" 
 
