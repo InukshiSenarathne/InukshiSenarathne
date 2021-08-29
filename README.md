@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hey there 👋
 ~I am Inukshi Senarathne :)
 
 ~My IT number ~ IT20215460
