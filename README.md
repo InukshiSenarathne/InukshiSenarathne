@@ -5,6 +5,6 @@
 
 ~GitHub username ~ `InukshiSenarathne`
 
-~Reach me ~ senarathneinukshi@gmail.com
+
 
 
